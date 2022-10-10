@@ -6,4 +6,4 @@ The Protagonist King Sea, the ruler of SeaHorses becomes the resistance against 
 
 Can u help King Sea win his battle against the Invaders??
  
-Try out and Reply : https://jayakrishna20.github.io/alien-invasion/ (Game Link)
+Try out and Reply : https://jayakrishna20.github.io/alien-invasion/
